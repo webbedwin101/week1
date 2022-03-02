@@ -17,7 +17,7 @@
 - Finance 
 - Current Events
 
-## I also swimming at the beach :joy:  
+## I also enjoy swimming at the beach :joy:  
 
 ## Favorite quote:
 > ***"Value Yourself For Who You Are"*** 
